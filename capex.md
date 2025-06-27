@@ -1,8 +1,6 @@
-depreciation - hardware
-
-amortization - software
-
-capex - people
+- depreciation - hardware
+- amortization - software
+- capex - people
 
 
 biggest cost base employee and salary
@@ -25,3 +23,4 @@ task based capitalization:
 
 doing it at individual is difficult. so we do in a hwterogeneous group
 
+capex from 78 - 85. that would mean that to save 30k pnl would mean an increased headcounts
