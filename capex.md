@@ -1,6 +1,9 @@
 depreciation - hardware
+
 amortization - software
+
 capex - people
+
 
 biggest cost base employee and salary
 X peoples salary - across the globe. 
