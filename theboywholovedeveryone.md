@@ -1,0 +1,15 @@
+- My name is Advait Sengaf and today I want to tell you about my favorite book.
+- It’s called **"The Boy Who Loved Everyone"** by Jane Porter.
+- I love this book because it is about a boy named Dimitri who is very kind and loving.l and he is my favourite character 
+- On his first day at preschool, he tells everyone he loves them.
+- He says "I love you" to his friends, his teacher, even to the ants and the trees!
+- I like how Dimitri is not afraid to show his feelings and wants everyone to feel happy and loved.
+- I learned that people can show love in many different ways, not just by saying "I love you."
+- Sometimes, people show love by being kind, helping, smiling, or giving a hug.
+- Dimitri felt sad when no one said "I love you" back, but his mom showed him that his friends and others were showing love in their own ways, like inviting him to play or giving him a hug.
+- Now I know that love can be everywhere, even if you don’t hear the words.
+- My favorite character is Dimitri!
+- I like him because he is very brave and gentle.
+- Even when people didn’t say "I love you" back, he still cared about them.
+- He taught me that it’s good to be kind and to notice all the ways people show they care.
+- Thank you for listening!
